@@ -3,8 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...sfd
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...2312
+- 😄 Pronouns: ...ad
 - gdf
 g12312465sdf
 <!---fgj
