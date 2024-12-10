@@ -4,7 +4,7 @@ sdf- 👋 Hi, I’m @vertefaz
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...sfdsdf
 - 😄 Pronouns: ...ad
-- gdf
+- gdfsdf
 g12312465sdf
 <!---fgj
 vertefaz/vertefaz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.dfa
