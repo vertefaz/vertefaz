@@ -1,8 +1,7 @@
 sdf- 👋 Hi, I’m @vertefaz
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...sfdsdf
+- 💞️ I’m looking to collaborate on ...45
 - 😄 Pronouns: ...ad
 - gdfsdf
 g12312465sdf
