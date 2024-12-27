@@ -3,7 +3,7 @@ sdf- 👋 Hi, I’m @vertefaz
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...45
 - 😄 Pronouns: ...ad
-- gdfsdf
+- gdfsdf54
 g12312465sdf
 <!---fgjsf54
 vertefaz/vertefaz is a ✨ special ✨ repository because its `README.md` (this ferfile) appears on your GitHub profile.dfa
