@@ -2,7 +2,7 @@ ewresdf- 👋 Hi, I’m @vertefaz
 - 👀 I’m interested in ...77
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...4536dbfnhgrgefrdfff
-- 😄 Pronouns: ...adghzxcreeryfjjfvfd
+- 😄 Pronouns: ...adghzxcreeryfjjfvfdjhhjmjm
 - gdfsdf545845dewwezcsdfsdftrter
 g12312465sdf56315157878xcv1152gbdghtr15214589rtyewd
 <!---fgjsf544545688521file) appears on your GitHub profile.dfa3vcb99+9dssdd
