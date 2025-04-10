@@ -1,6 +1,6 @@
 ewresdf- 👋 Hi, I’m @vertefaz
 - 👀 I’m interested in ...77
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...51
 - 💞️ I’m looking to collaborate on ...4536dbfnhgrgefrdfffewehgghg
 - 😄 Pronouns: ...gb588151
 - gdfsdf545845dewwezcsdfsdftrtercdsdsdcsdf
