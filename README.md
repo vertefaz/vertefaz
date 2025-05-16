@@ -1,8 +1,8 @@
 rtggttrewresdf- 👋 Hi, I’m @vertefaz
-- 👀 I’m interested in ...77
+- 👀 I’m interested in ...77vnb
 - 🌱 I’m currently learning ...51trbdfg
-- 💞️ I’m looking to collaborate on ...4536dbfnhgrgefrdfffewehgghgghngfcykjhjjhhjhjhjjjjj
-- 😄 Pronouns: ...gb588151nbbgffggfddfdfsesdewww
+- 💞️ I’m looking to collaborate on ...4536dbfnhgrgefrdfffewehgghgghngfcykjhjjhhjhjhjjjjjvbn
+- 😄 Pronouns: ...gb588151nbbgffggfddfdfsesdewwwvbn
 - gdfsdf545845dewwezcsdfsdftrtercdsdsdcsdfzxcxzczxqwqqwqq529552kuiuikkujhkhhgjhhghj
 dffdgdgfdsfdsdssdfsdss
 dsfsdsdfdsfdsfcx.kl.k.klkl
