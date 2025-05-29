@@ -3,7 +3,7 @@ rtggttrewresdf- 👋 Hi, I’m @vertefaz
 - 🌱 I’m currently learning ...51trbdfg
 - 💞️ I’m looking to collaborate on ...4536dbfnhgrgefrdfffewehgghgghngfcykjhjjhhjhjhjjjjjvbnrfddddhgnghnghn
 - 😄 Pronouns: ...gb588151nbbgffggfddfdfsesdewwwvbn5+252625egrergfd
-- gdfsdf545845dewwezcsdfsdftrtercdsdsdcsdfzxcxzczxqwqqwqq529552kuiuikkujhkhhgjhhghjfghhfgkyukyuyku
+- gdfsdf545845dewwezcsdfsdftrtercdsdsdcsdfzxcxzczxqwqqwqq529552kuiuikkujhkhhgjhhghjfghhfgkyukyuykuhrttrfg
 dffdgdgfdsfdsdssdfsdsserrefdfd
 dsfsdsdfdsfdsfcx.kl.k.klklfghhgf
 <!---fgjsf544545688521file) appears on your GitHub profile.dfa3vcb99+9dssddqwhtrregrgrefdfd
